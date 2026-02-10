@@ -1,5 +1,7 @@
 Daniel Molloy
 
+Accounting professional based in Dallas, Texas
+
 Financial Systems | Data Workflows | Automation | Energy & Midstream Accounting
 
 I work in large-scale midstream energy accounting, specializing in financial systems, data automation, and repeatable workflows. My focus is on accuracy, process design, and high-volume reporting environments across interstate pipeline operations.
