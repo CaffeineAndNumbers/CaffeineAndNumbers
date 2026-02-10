@@ -1,4 +1,4 @@
-Daniel Molloy
+Daniel Allen Molloy
 
 Accounting professional based in Dallas, Texas
 
