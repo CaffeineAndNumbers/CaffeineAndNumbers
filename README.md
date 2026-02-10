@@ -1,6 +1,6 @@
 Daniel Allen Molloy
 
-Accounting professional based in Dallas, Texas
+Accounting professional based in Dallas, Texas, specializing in financial systems, automation, and energy operations.
 
 Financial Systems | Data Workflows | Automation | Energy & Midstream Accounting
 
