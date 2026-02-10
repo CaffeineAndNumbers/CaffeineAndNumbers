@@ -1,4 +1,4 @@
-Danny Molloy
+Daniel Molloy
 
 Financial Systems | Data Workflows | Automation | Energy & Midstream Accounting
 
